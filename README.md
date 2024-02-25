@@ -7,3 +7,7 @@ Meu primeiro github site para ajudar as pessoas a acharem todo tipo de site de j
 - [Game App 1](https://jogosviatorrent.top//user/game-app-1)
 - [Game App 2](https://steamunlocked.net//user/game-app-2)
 - [Game App 3](https://steamverde.net//user/game-app-3)
+
+
+!AO ENTRAR EM CADA UM DESSES SITES VOCE NESCESSITARA PESQUISAR O JOGO QUE QUEIRA!!! 
+Cada um desses sites tem todo tipo de jogo somente nescessita pesquisar
